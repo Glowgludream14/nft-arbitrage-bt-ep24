@@ -1,4 +1,4 @@
-# 
+# ultimate bot sniper NFT executor é o melhor bot sniper NFT executor com transações proxy e controle de slippage. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
